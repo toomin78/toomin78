@@ -1,2 +1,0 @@
-# toomin78
-choi
